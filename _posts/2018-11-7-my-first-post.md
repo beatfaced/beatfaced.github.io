@@ -3,8 +3,6 @@ layout: post
 title: Makeup
 ---
 
+![makeup brushes](/images/makeup12.jpg) 
 
-
-Makeup brushes({{ site.baseurl }}/images/config.jpg)
-![Makeup Brushes](/images/name-of-your-image.jpg)
-The easiest way to make your first post is to edit this one. Go into /_posts/ and update the Hello World markdown file. For more instructions head over to the [Jekyll Now repository](https://github.com/barryclark/jekyll-now) on GitHub.
+Before anything, you need to have the right brush. You can't use a contour brush when you're doing your highlighter. Brushes are everything
