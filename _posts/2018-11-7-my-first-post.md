@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Makeup
+title: Brushes
 ---
 
 ![makeup brushes](/images/makeup12.jpg) 
