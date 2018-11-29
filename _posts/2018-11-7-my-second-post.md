@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Makeup
+title: Type of foundation
 ---
 
 ![foundation](/images/foundation.jpg) 
