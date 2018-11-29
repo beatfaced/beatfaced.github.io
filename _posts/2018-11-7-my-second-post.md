@@ -3,6 +3,5 @@ layout: post
 title: Makeup
 ---
 
-![makeup brushes](/images/foundation.jpg) 
-
-Before anything, you need to have the right brush. You can't use a contour brush when you're doing your highlighter. Brushes are everything to get the perfect face
+![foundation](/images/foundation.jpg) 
+When putting on foundation you have to make sure it's your color. You can't be tan and put on a foundation that is not close to you skin color. You also have to make sure if the foudation matches your neck, one important thing to do
