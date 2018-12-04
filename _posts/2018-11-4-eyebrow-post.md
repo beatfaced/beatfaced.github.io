@@ -3,7 +3,8 @@ layout: post
 title: Eyebrows
 ---
 
-![eyebrows](/images/eyebrow-12.jpg) 
+![eyebrows](/images/eyebrow12.jpg) 
+
 
 
 ## Perfect Eyebrows
