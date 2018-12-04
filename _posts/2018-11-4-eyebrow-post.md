@@ -3,7 +3,7 @@ layout: post
 title: Eyebrows
 ---
 
-![eyebrows](/images/eyebrow-12.jpg)
+![eyebrows](/images/eyebrow-12.jpeg)
 
 ## Perfect Eyebrows
 
@@ -13,7 +13,7 @@ To have the perfect eyebrows, use a eyebrow pencil to mark down where you need t
 
 
 
-![eyebrows](/images/eyebrow-product.jpg)
+![eyebrows](/images/eyebrow-product.jpeg)
 
 ## Products for Eyebrows
 
