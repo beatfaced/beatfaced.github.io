@@ -3,7 +3,7 @@ layout: post
 title: Eyebrows
 ---
 
-![eyebrows](/images/eyebrow12.jpg) 
+![eyebrows](/images/eyebrowshape.png) 
 
 
 
