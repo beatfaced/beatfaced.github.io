@@ -15,7 +15,7 @@ To have the perfect eyebrows, use a eyebrow pencil to mark down where you need t
 
 
 
-![eyebrows](/images/eyebrow-product.jpg)
+![eyebrows](/images/pencilbrow.mhtml)
 
 ## Products for Eyebrows
 
