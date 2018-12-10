@@ -19,5 +19,7 @@ To have the perfect eyebrows, use a eyebrow pencil to mark down where you need t
 
 ## Products for Eyebrows
 
-There are many products to fill in your eyebrows, but the ones that are most popular are a pencil brow and dipbrow. The pencil brow is really easy to use and if done right, the eyebrows looks natural. The dipbrow is more for a defined eyebrow. The brush that is used can do more of light strokes to create eyebrow hairs. Both do the job good and it really just depends what type of eyebrow you want. Most people prefer an instagram eyebrow which is a bold dark eyebrow and other prefer a more natural look.
+There are many products to fill in your eyebrows, but the ones that are most popular are a pencil brow and dipbrow. The pencil brow is really easy to use and if done right, the eyebrows looks natural. The dipbrow is more for a defined eyebrow. The brush that is used can do more of light strokes to create eyebrow hairs. Both do the job good and it really just depends what type of eyebrow you want. Most people prefer an instagram eyebrow which is a bold dark eyebrow and other prefer a more natural look. Read more  [here](https://brightside.me/inspiration-girls-stuff/10-essential-tips-to-get-perfect-eyebrows-205255/)
+
+
 
