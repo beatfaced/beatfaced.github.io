@@ -3,14 +3,11 @@ layout: post
 title: James Charles 
 ---
 
-![Makeup palette](/images/colors12.mhtml) 
+![Makeup looks](/images/girl.jpg)
 
 
 ## James Charles Palette
-If you don know who is James Charles, you must be living under a rock. James is a makeup artist and just came out with his new palette. The palette has 39 shades and comes with brushes separately. Perosnally I have not tried it but other reviews have stated it is the best to do amazing looks. Down below are looks that can be created from his palette. 
-
-![Makeup looks](/images/girl.jpg)
-
+If you don know who is James Charles, you must be living under a rock. James is a makeup artist and just came out with his new palette. The palette has 39 shades and comes with brushes separately. Perosnally I have not tried it but other reviews have stated it is the best to do amazing looks. Down below are looks that can be created from his palette.
 
 
 ## Pros/Cons
