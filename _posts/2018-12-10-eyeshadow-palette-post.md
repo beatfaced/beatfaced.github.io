@@ -18,3 +18,5 @@ There are many more palettes that are good as well. Some palettes may not be as 
 
 ## Why James Charles Palette?
 Not only does his palette contain manny colorful colors but it also contain, blush, highlighter, contour, ect. Haivng is palette can be used for many things and I would for sure buy it.
+
+You can see more [here](https://www.ulta.com/james-charles-palette?productId=pimprod2001848)
