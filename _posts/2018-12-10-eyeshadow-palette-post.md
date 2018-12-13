@@ -3,7 +3,7 @@ layout: post
 title: James Charles 
 ---
 
-![makeup palette](/images/james charles palette jpg - Google Search.mhtml) 
+![makeup palette](/images/james charles palette.jpg) 
 
 
 ## James Charles Palette
