@@ -3,7 +3,7 @@ layout: post
 title: James Charles 
 ---
 
-![Makeup palette](/images/jamescharles.jpg) 
+![Makeup palette](/images/colors12.mhtml) 
 
 
 ## James Charles Palette
