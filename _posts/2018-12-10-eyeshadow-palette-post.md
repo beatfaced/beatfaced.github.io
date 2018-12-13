@@ -3,7 +3,7 @@ layout: post
 title: James Charles 
 ---
 
-![makeup palette](/images/eyes.mhtml) 
+![makeup palette](/images/james charles palette jpg - Google Search.mhtml) 
 
 
 ## James Charles Palette
@@ -14,10 +14,10 @@ If you don know who is James Charles, you must be living under a rock. James is 
 
 
 ## Pros/Cons
-The palette comes with a varierty of different colors which letś people explore with different colors. The colors are very pigmented and stay on for a quite some time. But some people have had allegeric reactions to his palette. People just need to be more careful.
+The palette comes with a varierty of different colors which letś people explore with different colors. The colors are very pigmented and stay on for a quite some time. But some people have had allegeric reactions to his palette. People just need to be more careful. The palette is pretty pricey as well which is $39 and brushes come sepreate which is $149.
 
 ## Other Palettes
 There are many more palettes that are good as well. Some palettes may not be as high quality as James but they do the job.
 
 ## Why James Charles Palette?
-Not only does his palette 
+Not only does his palette contain manny colorful colors but it also contain, blush, highlighter, contour, ect. Haivng is palette can be used for many things and I would for sure buy it.
